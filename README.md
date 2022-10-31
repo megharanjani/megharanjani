@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @megharanjani
+- 👋 Hi, I’m Megha!
 - 🌱 I’m currently a CSE undergraduate at GEC Thrissur
 - 📫 How to reach me : Linkedin  : https://www.linkedin.com/in/megha-ranjani-mahadevan
                         
